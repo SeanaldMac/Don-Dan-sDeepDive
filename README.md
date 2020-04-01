@@ -1,1 +1,1 @@
-# Team game than spanned three weeks
+# Team game that spanned three weeks
